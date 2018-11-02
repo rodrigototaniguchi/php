@@ -1,0 +1,1 @@
+Maldito Kakaroto, sempre na minha frente
